@@ -1,0 +1,1 @@
+# Group6_LogicalExercise2
